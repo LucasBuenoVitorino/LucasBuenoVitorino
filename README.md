@@ -78,7 +78,6 @@ Tenho facilidade em comunicação e adaptação, sempre buscando evoluir e adqui
 
 <p>
   📧 Email: lucas.bueno.rodrigues034@gmail.com <br>
-  📱 Telefone: (43) 99608-9340 <br>
   🔗 LinkedIn: https://www.linkedin.com/in/lucas-bueno-a5a460362
 </p>
 
