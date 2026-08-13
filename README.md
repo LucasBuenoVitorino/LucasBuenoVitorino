@@ -53,7 +53,7 @@ Tenho facilidade em comunicação e adaptação, sempre buscando evoluir e adqui
 
 ## 💼 Experiência
 
-📌 **Auxiliar Administrativo** (2024 - atual)  
+📌 **Auxiliar Administrativo** (2024 - Abril 2026)  
 - Atendimento a clientes e fornecedores  
 - Organização de arquivos físicos e digitais  
 - Apoio em relatórios e controle de agendas  
